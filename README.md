@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jenwilley
 - 👀 I’m interested in hiking,soccer,farming
-- 🌱 I’m currently learning more guitar notes
+- :guitar: I’m currently learning more guitar notes
 - 💞️ I’m looking to collaborate on anything! I love to learn new things!
 - ⚡ Fun fact: I own a large farm in NE Alabama
 
