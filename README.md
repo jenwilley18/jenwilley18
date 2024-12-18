@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jenwilley18
+- 👋 Hi, I’m @jenwilley
 - 👀 I’m interested in hiking,soccer,farming
 - 🌱 I’m currently learning more guitar notes
 - 💞️ I’m looking to collaborate on anything! I love to learn new things!
